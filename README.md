@@ -12,7 +12,7 @@
   <img src="https://64.media.tumblr.com/e189cb3d470baf1708d478309261a854/75fd9c94bba3153b-ac/s100x200/a731944ad7dc0e4e885f415294c91f86adaacd61.gifv" />
 </p>
 <p align="center">
-  <a href="https://rentry.co/casperification"><strong>rentry</strong></a> 𓆩♱𓆪
+  <a href="https://rentry.co/thefaithfulasone"><strong>rentry</strong></a> 𓆩♱𓆪
   <a href="https://casperification.atabook.org/"><strong>atabook</strong></a> 𓆩♱𓆪
   <a href="https://casperification.straw.page/"><strong>straw</strong></a>
 </p>
